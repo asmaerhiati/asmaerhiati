@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently learning Blockchain Technology<br>👯 I’m looking to collaborate on projects as a Web designer<br>📫 Shot me an [rhiati.asmae1@gmail.com](Email) or add me on [https://www.linkedin.com/in/asmaerhiati/](LinkedIn)<br>
+🌱 I’m currently learning Blockchain Technology<br>👯 I’m looking to collaborate on projects as a Web designer<br>📫 Shot me an [Email](rhiati.asmae1@gmail.com) or add me on [LinkedIn]([LinkedIn](https://www.linkedin.com/in/asmaerhiati/))<br>
 
 
 ## 🌐 Socials:
